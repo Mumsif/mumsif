@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I'm currently working on
+📱 I'm a Mobile App Developer
 
 
 ## 🌐 Socials:
